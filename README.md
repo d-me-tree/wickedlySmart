@@ -1,1 +1,1 @@
-# wickedlySmart Projects
+# [wickedlySmart Projects](http://www.wickedlysmart.com/projects/)
